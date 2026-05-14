@@ -1,4 +1,4 @@
-#  
+#  bedwars Scripts no-ban offers the most advanced bedwars Script, with unlimited stamina and undetectable. Perfect for dominating any match.
 
 
 
